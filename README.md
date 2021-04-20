@@ -4,6 +4,6 @@
 - Your ship isn't that heavy, but still prospering. What's the trick?
 - Carrying the right mass.
 
-yeah weight is only created when you have an accelerating mass, but the whole point of the above fable is if you are an alive human being, keep being a useful weight when the lives of billions like you are in motion.
+Weight manifests only when a mass accelerates, but the whole point of the above fable is if you are an alive human being, keep being a useful weight when the lives of billions like you are in motion.
 
 spread the power of collaboration!
